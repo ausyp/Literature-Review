@@ -1,1 +1,1 @@
-Fuck turnitin
+Fcuk turnitin
